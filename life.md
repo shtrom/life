@@ -1,0 +1,266 @@
+Wars since 1900
+===============
+
+- 1899-1902 [Philippine insurrection](http://www.war-memorial.net/Philippine-insurrection--3.3), 20,500 people killed
+- 1899-1902 [Second Boer war](http://www.war-memorial.net/Second-Boer-war-3.4), 30,800 people killed
+- 1899-1903 [The War of a Thousand Days](http://www.war-memorial.net/The-War-of-a-Thousand-Days---3.5), 100,000 people killed
+- 1899-1920 [The Dervish State vs Ethiopia, Britain and Italy](http://www.war-memorial.net/The-Dervish-State-vs-Ethiopia,-Britain-and-Italy-3.9),  people killed
+- ~1900 [Sino-Russian War](http://www.war-memorial.net/Sino-Russian-War-3.267), 4,000 people killed
+- ~1900 [The Boxer Rebellion](http://www.war-memorial.net/The-Boxer-Rebellion-3.1), 3,003 people killed
+- 1902-1904 [Uprisings in Colonial Angola](http://www.war-memorial.net/Uprisings-in-Colonial-Angola-3.268), 2,000 people killed
+- ~1903 [Ilinden Uprising](http://www.war-memorial.net/Ilinden-Uprising-3.6), 6,330 people killed
+- 1904-1905 [Russo-Japanese war](http://www.war-memorial.net/Russo-Japanese-war-3.10), 151,831 people killed
+- 1904-1905 [Southwest African Revolt](http://www.war-memorial.net/Southwest-African-Revolt-3.11), 12,800 people killed
+- 1904-1907 [Dutch-Achinese War](http://www.war-memorial.net/Dutch-Achinese-War-3.269), 24,200 people killed
+- ~1904 [Second Yemen Rebellion](http://www.war-memorial.net/Second-Yemen-Rebellion-3.266), 30,000 people killed
+- ~1904 [Uruguay Civil War](http://www.war-memorial.net/Uruguay-Civil-War-3.8), 1,000 people killed
+- 1905-1906 [Maji Maji revolt](http://www.war-memorial.net/Maji-Maji-revolt-3.12), 8,840 people killed
+- 1905-1906 [Russian Revolution 1905](http://www.war-memorial.net/Russian-Revolution-1905--3.7), 1,500 people killed
+- ~1906 [Sokoto and UK vs Mahdist Revolt](http://www.war-memorial.net/Sokoto-and-UK-vs-Mahdist-Revolt-3.270), 2,080 people killed
+- ~1906 [Third Central American war](http://www.war-memorial.net/Third-Central-American-war--3.14), 1,000 people killed
+- ~1906 [Zulu Rebellion](http://www.war-memorial.net/Zulu-Rebellion-3.13), 2,356 people killed
+- 1907-1908 [Morocco unrest](http://www.war-memorial.net/Morocco-unrest-3.17), 1,400 people killed
+- 1907-1910 [Korean guerilla war against Japanese occupation](http://www.war-memorial.net/Korean-guerilla-war-against-Japanese-occupation-3.273),  people killed
+- 1907-1910 [Ma al-Aynayns Anti-Colonial Insurgency](http://www.war-memorial.net/Ma-al-Aynayns-Anti-Colonial-Insurgency--3.272), 3,150 people killed
+- 1907-1910 [Portugese war against Dembos](http://www.war-memorial.net/Portugese-war-against-Dembos-3.271), 5,100 people killed
+- ~1907 [4th Central American war](http://www.war-memorial.net/4th-Central-American-war--3.15), 1,000 people killed
+- ~1907 [Romanian Peasant Revolt](http://www.war-memorial.net/Romanian-Peasant-Revolt-3.16), 2,000 people killed
+- 1908-1909 [Iranian Constitution War](http://www.war-memorial.net/Iranian-Constitution-War-3.18), 1,100 people killed
+- 1909-1910 [The second Rif War](http://www.war-memorial.net/The-second-Rif-War-3.19), 10,000 people killed
+- 1909-1911 [French Conquest of Wadai Sultanate](http://www.war-memorial.net/French-Conquest-of-Wadai-Sultanate-3.274), 12,000 people killed
+- 1910-1911 [Asir-Yemen Revolt](http://www.war-memorial.net/Asir-Yemen-Revolt-3.275), 9,000 people killed
+- 1910-1920 [Mexican Revolution](http://www.war-memorial.net/Mexican-Revolution--3.39), 125,000 people killed
+- 1911-1912 [First Sino-Tibetan War](http://www.war-memorial.net/First-Sino-Tibetan-War-3.24), 2,000 people killed
+- 1911-1912 [Italo-Turkish War](http://www.war-memorial.net/Italo-Turkish-War-3.23), 20,000 people killed
+- 1911-1912 [Paraguay Coups](http://www.war-memorial.net/Paraguay-Coups-3.22), 5,000 people killed
+- ~1911 [Chinese Revolution](http://www.war-memorial.net/Chinese-Revolution--3.21), 1,000 people killed
+- ~1911 [Cuba vs Partido Independiente de Color](http://www.war-memorial.net/Cuba-vs-Partido-Independiente-de-Color-3.276), 1,050 people killed
+- 1912-1913 [1st Balkan War](http://www.war-memorial.net/1st-Balkan-War-3.25), 82,000 people killed
+- ~1913 [2nd Balkan War](http://www.war-memorial.net/2nd-Balkan-War--3.26), 60,500 people killed
+- ~1913 [Kuomintang vs Chinese Army](http://www.war-memorial.net/Kuomintang-vs-Chinese-Army--3.27), 5,000 people killed
+- ~1913 [Moro Rebellion](http://www.war-memorial.net/Moro-Rebellion-3.277), 15,050 people killed
+- 1914-1918 [World War I](http://www.war-memorial.net/World-War-I-3.32), 10,670,868 people killed
+- ~1914 [Chinese Govt vs Bai Lang (White Wolf) Rebels](http://www.war-memorial.net/Chinese-Govt-vs-Bai-Lang-(White-Wolf)-Rebels-3.28), 5,000 people killed
+- 1915-1918 [Southern China Revolt](http://www.war-memorial.net/Southern-China-Revolt-3.29), 1,000 people killed
+- 1916-1917 [Russia-Turkestan](http://www.war-memorial.net/Russia-Turkestan-3.278), 1,350 people killed
+- 1917-1922 [Russian Revolution and Civil War](http://www.war-memorial.net/Russian-Revolution-and-Civil-War-3.47), 802,225 people killed
+- 1918-1920 [Caco Revolt](http://www.war-memorial.net/Caco-Revolt-3.282), 2,102 people killed
+- 1918-1920 [Estonian Liberation War](http://www.war-memorial.net/Estonian-Liberation-War-3.279), 11,750 people killed
+- 1918-1920 [Latvian Liberation](http://www.war-memorial.net/Latvian-Liberation-3.280), 13,246 people killed
+- ~1918 [Finnish Civil War](http://www.war-memorial.net/Finnish-Civil-War-3.35), 15,150 people killed
+- ~1918 [Second Sino-Tibetan](http://www.war-memorial.net/Second-Sino-Tibetan-3.281), 1,500 people killed
+- 1919-1920 [First British-Waziristan War](http://www.war-memorial.net/First-British-Waziristan-War-3.286), 2,000 people killed
+- 1919-1920 [Hungary Civil War](http://www.war-memorial.net/Hungary-Civil-War-3.40), 1,500 people killed
+- 1919-1920 [Polish-Soviet War](http://www.war-memorial.net/Polish-Soviet-War-3.41), 100,000 people killed
+- 1919-1921 [Turkish War of Independence](http://www.war-memorial.net/Turkish-War-of-Independence-3.45), 40,000 people killed
+- 1919-1922 [Second Greco Turkish War](http://www.war-memorial.net/Second-Greco-Turkish-War-3.49), 50,000 people killed
+- 1919-1925 [Nejd-Hejaz Wars](http://www.war-memorial.net/Nejd-Hejaz-Wars-3.283), 4,000 people killed
+- ~1919 [HungarianRomanian War of 1919](http://www.war-memorial.net/HungarianRomanian-War-of-1919-3.36), 11,000 people killed
+- ~1919 [Sparticist Rising](http://www.war-memorial.net/Sparticist-Rising-3.284), 2,170 people killed
+- ~1919 [Third Anglo-Afghan War](http://www.war-memorial.net/Third-Anglo-Afghan-War-3.37), 2,136 people killed
+- 1920-1921 [Conquest of Mongolia](http://www.war-memorial.net/Conquest-of-Mongolia-3.287), 4,000 people killed
+- 1920-1921 [Green Rebellion](http://www.war-memorial.net/Green-Rebellion-3.290), 6,700 people killed
+- 1920-1921 [Iraq vs UK](http://www.war-memorial.net/Iraq-vs-UK-3.46), 9,540 people killed
+- 1920-1922 [Blackshirts vs Leftists](http://www.war-memorial.net/Blackshirts-vs-Leftists-3.291), 3,300 people killed
+- 1920-1926 [Third Rif War](http://www.war-memorial.net/Third-Rif-War-3.53), 70,000 people killed
+- 1920-1932 [Senussi Orden vs Italy](http://www.war-memorial.net/Senussi-Orden--vs-Italy-3.64), 40,000 people killed
+- ~1920 [First Chinese Warlord War](http://www.war-memorial.net/First-Chinese-Warlord-War-3.309), 35,000 people killed
+- ~1920 [Franco-Syrian war](http://www.war-memorial.net/Franco-Syrian-war--3.42), 3,500 people killed
+- ~1920 [Lithuanian-Polish War](http://www.war-memorial.net/Lithuanian-Polish-War-3.285), 1,000 people killed
+- 1921-1922 [Ireland freestaters vs Irregulars](http://www.war-memorial.net/Ireland-freestaters-vs-Irregulars--3.50), 4,000 people killed
+- 1921-1922 [Moplah Riots in Kerala](http://www.war-memorial.net/Moplah-Riots-in-Kerala-3.48), 2,450 people killed
+- 1921-1923 [Soviet-Turkestan War](http://www.war-memorial.net/Soviet-Turkestan-War-3.293), 3,500 people killed
+- ~1921 [Kronstadt Rebellion](http://www.war-memorial.net/Kronstadt-Rebellion-3.292), 2,600 people killed
+- ~1922 [Second Chinese Warlord War](http://www.war-memorial.net/Second-Chinese-Warlord-War-3.310), 20,000 people killed
+- 1924-1925 [Afghan rebels vs govt](http://www.war-memorial.net/Afghan-rebels-vs-govt-3.52), 2,000 people killed
+- ~1924 [Honduras Coup](http://www.war-memorial.net/Honduras-Coup-3.51), 1,000 people killed
+- 1925-1926 [Third Chinese Warlord War](http://www.war-memorial.net/Third-Chinese-Warlord-War-3.311), 1,000 people killed
+- 1925-1927 [Druze revolt](http://www.war-memorial.net/Druze-revolt-3.54), 6,000 people killed
+- 1926-1928 [Northern Expedition](http://www.war-memorial.net/Northern-Expedition-3.56), 126,500 people killed
+- 1926-1929 [The Cristero War](http://www.war-memorial.net/The-Cristero-War-3.60), 10,000 people killed
+- 1928-1929 [Second Afghan Anti-Reform War](http://www.war-memorial.net/Second-Afghan-Anti-Reform-War-3.58), 15,000 people killed
+- ~1928 [Kuomintang vs Gansu Rebels](http://www.war-memorial.net/Kuomintang-vs-Gansu-Rebels-3.57), 200,000 people killed
+- 1929-1930 [Ikhwan Revolt](http://www.war-memorial.net/Ikhwan-Revolt-3.295), 5,500 people killed
+- 1929-1930 [Kuomintang vs warlords](http://www.war-memorial.net/Kuomintang-vs-warlords-3.61), 75,000 people killed
+- ~1929 [Escobar Rebellion](http://www.war-memorial.net/Escobar-Rebellion-3.294), 2,000 people killed
+- ~1929 [Sino-Soviet war](http://www.war-memorial.net/Sino-Soviet-war-3.59), 3,200 people killed
+- 1930-1932 [Saya San Rebellion](http://www.war-memorial.net/Saya-San-Rebellion-3.289), 1,140 people killed
+- 1930-1935 [Communists vs Koumintang](http://www.war-memorial.net/Communists-vs-Koumintang-3.71), 500,000 people killed
+- 1931-1933 [Manchurian War](http://www.war-memorial.net/Manchurian-War-3.67), 60,000 people killed
+- 1931-1934 [Xinjiang Muslim Revolt](http://www.war-memorial.net/Xinjiang-Muslim-Revolt-3.296), 21,000 people killed
+- 1932-1935 [Chaco War](http://www.war-memorial.net/Chaco-War-3.72), 92,661 people killed
+- ~1932 [Aprista Revolt in Peru](http://www.war-memorial.net/Aprista-Revolt-in-Peru-3.297), 1,100 people killed
+- ~1932 [Brazilian Revolt](http://www.war-memorial.net/Brazilian-Revolt-3.66), 1,000 people killed
+- ~1932 [El Salvador, La Matanza](http://www.war-memorial.net/El-Salvador,-La-Matanza-3.65), 2,600 people killed
+- ~1934 [Saudi-Yemeni War](http://www.war-memorial.net/Saudi-Yemeni-War-3.298), 2,100 people killed
+- ~1934 [Spanish Socialists vs Govt](http://www.war-memorial.net/Spanish-Socialists-vs-Govt-3.69), 1,335 people killed
+- 1935-1936 [Italo-Ethiopian War](http://www.war-memorial.net/Italo-Ethiopian-War-3.73), 20,000 people killed
+- 1936-1939 [Arab revolt in Mandatory Palestine](http://www.war-memorial.net/-Arab-revolt-in-Mandatory-Palestine-3.299), 2,576 people killed
+- 1936-1939 [Second British-Waziristan](http://www.war-memorial.net/Second-British-Waziristan-3.300), 10,200 people killed
+- 1936-1939 [Spanish Civil War](http://www.war-memorial.net/Spanish-Civil-War--3.78), 466,300 people killed
+- 1937-1941 [Third Sino-Japanese War](http://www.war-memorial.net/Third-Sino-Japanese-War-3.81), 1,000,000 people killed
+- ~1938 [Changkufeng Incident](http://www.war-memorial.net/Changkufeng-Incident-3.75), 1,726 people killed
+- 1939-1940 [The Winter War in Finland](http://www.war-memorial.net/The-Winter-War-in-Finland-3.80), 151,798 people killed
+- 1939-1945 [World War II](http://www.war-memorial.net/World-War-II--3.83), 50,000,000 people killed
+- ~1939 [The battle of Khalkhin Gol](http://www.war-memorial.net/The-battle-of-Khalkhin-Gol-3.79), 28,000 people killed
+- 1940-1941 [Franco-Thai War](http://www.war-memorial.net/Franco-Thai-War-3.82), 1,400 people killed
+- 1945-1946 [Indonesian Independence](http://www.war-memorial.net/Indonesian-Independence-3.84), 5,400 people killed
+- 1945-1947 [Poland and Soviet Union vs Ukrainian Partisans](http://www.war-memorial.net/Poland-and-Soviet-Union-vs-Ukrainian-Partisans-3.301),  people killed
+- 1945-1951 [Soviet Union vs Baltic Partisans (Forest Brethren)](http://www.war-memorial.net/Soviet-Union-vs-Baltic-Partisans-(Forest-Brethren)-3.302),  people killed
+- 1946-1949 [Chinese Civil War](http://www.war-memorial.net/Chinese-Civil-War-3.95), 1,200,000 people killed
+- 1946-1949 [Greece Civil War](http://www.war-memorial.net/Greece-Civil-War-3.92), 154,000 people killed
+- 1946-1954 [First Indochina War Comm. vs France](http://www.war-memorial.net/First-Indochina-War-Comm.-vs-France-3.103), 377,523 people killed
+- 1946-1954 [Philippines, Huk rebels vs Govt](http://www.war-memorial.net/Philippines,-Huk-rebels-vs-Govt-3.99), 9,695 people killed
+- 1947-1948 [Civil War in Mandatory Palestine](http://www.war-memorial.net/Civil-War-in-Mandatory-Palestine-3.265), 4,009 people killed
+- 1947-1948 [Indian Partition Communal Violence](http://www.war-memorial.net/Indian-Partition-Communal-Violence-3.90), 200,000 people killed
+- 1947-1948 [Telangana Rebellion and Indo-Hyderabad War](http://www.war-memorial.net/Telangana-Rebellion-and-Indo-Hyderabad-War-3.303), 4,360 people killed
+- ~1947 [Madagascar Rebellion](http://www.war-memorial.net/Madagascar-Rebellion-3.93), 6,952 people killed
+- ~1947 [Paraguayan Gvt vs Rebels](http://www.war-memorial.net/Paraguayan-Gvt-vs--Rebels-3.85), 4,000 people killed
+- ~1947 [Taiwanese revolt](http://www.war-memorial.net/Taiwanese-revolt-3.86), 1,000 people killed
+- 1948-1949 [Arab-Israeli War](http://www.war-memorial.net/Arab-Israeli-War-3.91), 21,111 people killed
+- 1948-1949 [Cheju Rebellion in South Korea](http://www.war-memorial.net/Cheju-Rebellion-in-South-Korea-3.308), 17,000 people killed
+- 1948-1951 [Indian Govt vs Communist Rebels CPI](http://www.war-memorial.net/Indian-Govt-vs-Communist-Rebels-CPI-3.318), 4,000 people killed
+- 1948-1957 [Malayan Civil War](http://www.war-memorial.net/Malayan-Civil-War-3.113), 10,845 people killed
+- 1948-1958 [La Violencia](http://www.war-memorial.net/La-Violencia--3.88), 29,800 people killed
+- 1948-1994 [Burmese Govt vs Communist Guerillas](http://www.war-memorial.net/Burmese-Govt-vs-Communist-Guerillas---3.168), 17,700 people killed
+- ~1948 [Costa Rican Civil War](http://www.war-memorial.net/Costa-Rican-Civil-War-3.87), 2,000 people killed
+- ~1948 [First Kashmir War](http://www.war-memorial.net/First-Kashmir-War-3.94), 7,500 people killed
+- ~1948 [Yemeni Imamate War](http://www.war-memorial.net/Yemeni-Imamate-War-3.89), 4,000 people killed
+- 1949-1953 [Korean War](http://www.war-memorial.net/Korean-War-3.101), 995,025 people killed
+- 1949-1954 [Taiwan Strait Crisis](http://www.war-memorial.net/Taiwan-Strait-Crisis-3.305), 10,025 people killed
+- 1949-2014 [Burmese Government vs Separatist Guerillas](http://www.war-memorial.net/Burmese-Government-vs-Separatist-Guerillas-3.225), 53,707 people killed
+- 1949-2014 [Israel vs Palestine](http://www.war-memorial.net/Israel-vs-Palestine-3.217), 15,216 people killed
+- ~1950 [Indonesian Govt vs Republic of South Moluccas](http://www.war-memorial.net/Indonesian-Govt-vs-Republic-of-South-Moluccas-3.323), 1,000 people killed
+- ~1950 [Third Sino-Tibetan War](http://www.war-memorial.net/Third-Sino-Tibetan-War-3.97), 4,000 people killed
+- ~1952 [Bolivian Revolution](http://www.war-memorial.net/Bolivian-Revolution-3.98), 1,000 people killed
+- 1953-1956 [Moroccan War of Independence](http://www.war-memorial.net/Moroccan-War-of-Independence-3.109), 1,000 people killed
+- 1953-1956 [Tunisian war of Independence](http://www.war-memorial.net/Tunisian-war-of-Independence-3.105), 2,000 people killed
+- 1953-1961 [Cuban Revolution](http://www.war-memorial.net/Cuban-Revolution-3.115), 1,205 people killed
+- 1953-1961 [Indonesia vs PRRI, Permesta and Darul Islam](http://www.war-memorial.net/Indonesia-vs-PRRI,-Permesta-and-Darul-Islam-3.119), 33,965 people killed
+- 1954-1956 [Kenya, Mau-Mau vs UK](http://www.war-memorial.net/Kenya,-Mau-Mau-vs-UK-3.110), 12,955 people killed
+- 1954-1962 [Algerian War of Independece](http://www.war-memorial.net/Algerian-War-of-Independece-3.122), 184,886 people killed
+- 1955-1964 [Vietnam Civil War](http://www.war-memorial.net/Vietnam-Civil-War-3.129), 164,923 people killed
+- 1956-1959 [Tibetan Uprising](http://www.war-memorial.net/Tibetan-Uprising-3.117), 16,000 people killed
+- ~1956 [Sinai War](http://www.war-memorial.net/Sinai-War-3.112), 2,142 people killed
+- ~1956 [Soviet Invasion of Hungary](http://www.war-memorial.net/Soviet-Invasion-of-Hungary-3.111), 3,171 people killed
+- 1957-1959 [Cameroon War of Independence](http://www.war-memorial.net/Cameroon-War-of-Independence-3.118), 11,700 people killed
+- ~1958 [First Lebanese War](http://www.war-memorial.net/First-Lebanese-War-3.114), 1,400 people killed
+- ~1959 [1959 Mosul uprising in Iraq](http://www.war-memorial.net/1959-Mosul-uprising-in-Iraq-3.116), 2,000 people killed
+- 1959-1973 [Laos Civil War](http://www.war-memorial.net/Laos-Civil-War-3.123), 21,500 people killed
+- 1960-1961 [Cameroonian Govt vs UPC](http://www.war-memorial.net/Cameroonian-Govt-vs-UPC-3.325), 60,000 people killed
+- 1960-1965 [Congo Crisis](http://www.war-memorial.net/Congo-Crisis-3.128), 7,175 people killed
+- 1961-1970 [First KurdishIraqi War](http://www.war-memorial.net/First-KurdishIraqi-War-3.125), 6,600 people killed
+- 1961-1975 [Angolan War of Independence](http://www.war-memorial.net/Angolan-War-of-Independence-3.154), 79,000 people killed
+- ~1961 [Bizerte Crisis](http://www.war-memorial.net/Bizerte-Crisis-3.324), 1,394 people killed
+- 1962-1970 [North Yemen Civil War](http://www.war-memorial.net/North-Yemen-Civil-War-3.137), 10,000 people killed
+- 1962-1978 [Indonesian annexation of West Papua](http://www.war-memorial.net/Indonesian-annexation-of-West-Papua-3.304), 8,700 people killed
+- ~1962 [Sino-Indian War](http://www.war-memorial.net/Sino-Indian-War-3.124), 2,105 people killed
+- 1963-1964 [First Rwanda Civil War](http://www.war-memorial.net/First-Rwanda-Civil-War-3.127), 1,000 people killed
+- 1963-1972 [Sudan Government vs Insurgents](http://www.war-memorial.net/Sudan-Government-vs-Insurgents-3.147), 10,000 people killed
+- 1963-1973 [Guinea Bissau War of Independence](http://www.war-memorial.net/Guinea-Bissau-War-of-Independence-3.152), 15,000 people killed
+- 1964-1971 [Second Kashmir War](http://www.war-memorial.net/Second-Kashmir-War-3.131), 16,327 people killed
+- 1964-1974 [Mozambique War of Independence](http://www.war-memorial.net/Mozambique-War-of-Independence-3.155), 13,500 people killed
+- 1964-1991 [Ethiopia vs Eritrean Separatists ELF/EPLF](http://www.war-memorial.net/Ethiopia-vs-Eritrean-Separatists-ELF/EPLF--3.190), 168,510 people killed
+- 1964-2014 [Colombia Govt vs Guerillas Farc and ELN](http://www.war-memorial.net/Colombia-Govt-vs-Guerillas-Farc-and-ELN-3.226), 26,877 people killed
+- 1965-1975 [Vietnam War](http://www.war-memorial.net/Vietnam-War--3.156), 2,048,050 people killed
+- 1965-1995 [Guatemalan Civil War](http://www.war-memorial.net/Guatemalan-Civil-War-3.205), 45,392 people killed
+- 1965-2010 [Peruvian Gvt vs Sendero Luminoso and MRTA](http://www.war-memorial.net/Peruvian-Gvt-vs-Sendero-Luminoso-and-MRTA--3.221), 17,250 people killed
+- ~1965 [Dominican Republic Coup](http://www.war-memorial.net/Dominican-Republic-Coup---3.130), 4,027 people killed
+- 1966-1988 [Namibia vs South Africa](http://www.war-memorial.net/Namibia-vs-South-Africa-3.181), 10,000 people killed
+- 1966-1996 [Iranian Govt vs KDPI](http://www.war-memorial.net/Iranian-Govt-vs-KDPI--3.172), 2,618 people killed
+- 1966-2010 [Chad Civil War](http://www.war-memorial.net/Chad-Civil-War--3.188), 36,078 people killed
+- 1967-1970 [Nigerian Civil War](http://www.war-memorial.net/Nigerian-Civil-War--3.140), 75,000 people killed
+- 1967-1975 [Cambodian Civil War](http://www.war-memorial.net/Cambodian-Civil-War--3.157), 250,000 people killed
+- 1967-1976 [Chinese Cultural Revolution](http://www.war-memorial.net/Chinese-Cultural-Revolution-3.136), 2,050,000 people killed
+- 1967-1979 [Rhodesian Government vs ZANU,ZAPU,PF](http://www.war-memorial.net/Rhodesian-Government-vs-ZANU,ZAPU,PF-3.161), 27,080 people killed
+- ~1967 [The Six Day War](http://www.war-memorial.net/The-Six-Day-War--3.134), 5,413 people killed
+- 1969-1970 [Israel vs Egypt](http://www.war-memorial.net/Israel-vs-Egypt-3.141), 5,520 people killed
+- 1969-2014 [Philippine Government vs CPP Guerrilla](http://www.war-memorial.net/Philippine-Government-vs-CPP-Guerrilla-3.236), 24,804 people killed
+- ~1969 [Football War Honduras vs El Salvador](http://www.war-memorial.net/Football-War-Honduras-vs-El-Salvador--3.139), 2,107 people killed
+- 1970-2014 [Philippines Govt vs Mindanao Guerillas](http://www.war-memorial.net/Philippines-Govt-vs-Mindanao-Guerillas-3.218), 17,692 people killed
+- 1971-1990 [Sri Lanka Govt vs JVP](http://www.war-memorial.net/Sri-Lanka-Govt-vs-JVP-3.185), 2,018 people killed
+- 1971-1998 [Northern Ireland, The Troubles](http://www.war-memorial.net/Northern-Ireland,-The-Troubles-3.201), 3,010 people killed
+- ~1971 [Bangladesh War](http://www.war-memorial.net/Bangladesh-War--3.145), 50,000 people killed
+- ~1972 [Hutu Rebellion](http://www.war-memorial.net/Hutu-Rebellion-3.149), 153,000 people killed
+- ~1973 [Chilean MIlitary Coup](http://www.war-memorial.net/Chilean-MIlitary-Coup-3.186), 2,095 people killed
+- ~1973 [Yom Kippur War](http://www.war-memorial.net/Yom-Kippur-War--3.151), 6,450 people killed
+- 1974-1977 [Argentina: Civil War and Dirty War](http://www.war-memorial.net/Argentina--Civil-War-and-Dirty-War-3.174), 4,677 people killed
+- 1974-1977 [Balochistan Insurgency](http://www.war-memorial.net/Balochistan-Insurgency-3.159), 8,600 people killed
+- 1974-1982 [Thai Govt vs CPT](http://www.war-memorial.net/Thai-Govt-vs-CPT-3.322), 3,425 people killed
+- ~1974 [Turko Cypriot War](http://www.war-memorial.net/Turko-Cypriot-War--3.153), 5,000 people killed
+- 1975-1989 [Western Sahara War](http://www.war-memorial.net/Western-Sahara-War--3.193), 12,687 people killed
+- 1975-1990 [Lebanese Civil War](http://www.war-memorial.net/Lebanese-Civil-War--3.187), 131,104 people killed
+- 1975-1999 [Indonesian Govt vs Fretilin - East Timor](http://www.war-memorial.net/Indonesian-Govt-vs-Fretilin---East-Timor--3.212), 76,623 people killed
+- 1975-2002 [Angolan Gvt vs UNITA Guerilla](http://www.war-memorial.net/Angolan-Gvt-vs-UNITA-Guerilla-3.219), 114,898 people killed
+- 1976-1991 [Ethiopian Government vs EPRDF](http://www.war-memorial.net/Ethiopian-Government-vs-EPRDF-3.191), 56,003 people killed
+- 1976-2014 [Ethiopian Govt vs Ogadeni Rebels - WSLF/ONLF/AIAI](http://www.war-memorial.net/Ethiopian-Govt-vs-Ogadeni-Rebels---WSLF/ONLF/AIAI-3.176),  people killed
+- 1977-2013 [Ethiopia vs Oromia rebels (OLF)](http://www.war-memorial.net/Ethiopia-vs-Oromia-rebels-(OLF)-3.264), 2,651 people killed
+- 1977-2013 [Mozambique Govt vs RENAMO and FRELIMO](http://www.war-memorial.net/Mozambique-Govt-vs-RENAMO-and-FRELIMO-3.195), 115,888 people killed
+- 1978-1979 [Iranian Revolution](http://www.war-memorial.net/Iranian-Revolution-3.166), 1,100 people killed
+- 1978-1979 [Nicaraguan Gvt vs Sandinistas](http://www.war-memorial.net/Nicaraguan-Gvt-vs-Sandinistas-3.164), 10,000 people killed
+- 1978-1979 [Uganda vs Tanzania](http://www.war-memorial.net/Uganda-vs-Tanzania--3.165), 3,847 people killed
+- 1978-1988 [Sino-Vietnamese War](http://www.war-memorial.net/Sino-Vietnamese-War--3.167), 47,046 people killed
+- 1978-2000 [Afghanistan Civil War](http://www.war-memorial.net/Afghanistan-Civil-War-3.220), 546,703 people killed
+- ~1978 [Vietnam vs Cambodia (Kampuchea)](http://www.war-memorial.net/Vietnam-vs-Cambodia-(Kampuchea)--3.163), 32,500 people killed
+- 1979-1982 [Syrian Govt vs Muslim Brotherhood](http://www.war-memorial.net/Syrian-Govt-vs-Muslim-Brotherhood-3.171), 2,075 people killed
+- 1979-1991 [El Salvador Gvt vs FMLN Guerrillas](http://www.war-memorial.net/El-Salvador-Gvt-vs-FMLN-Guerrillas-3.194), 51,809 people killed
+- 1979-1998 [Cambodian Govt vs Khmer Rouge](http://www.war-memorial.net/Cambodian-Govt-vs-Khmer-Rouge-3.210), 87,499 people killed
+- 1979-2011 [Iran vs rebel groups (MEK,PJAK etc)](http://www.war-memorial.net/Iran-vs-rebel-groups-(MEK,PJAK-etc)-3.233), 5,015 people killed
+- 1980-1988 [Iran vs Iraq](http://www.war-memorial.net/Iran-vs-Iraq-3.183), 644,500 people killed
+- 1980-2013 [Uganda Civil War](http://www.war-memorial.net/Uganda-Civil-War--3.182), 127,566 people killed
+- 1981-1988 [South Africa vs ANC](http://www.war-memorial.net/South-Africa-vs-ANC-3.317), 4,087 people killed
+- 1981-1990 [Nicaragua Govt vs Contras](http://www.war-memorial.net/Nicaragua-Govt-vs-Contras--3.189), 29,965 people killed
+- 1982-1996 [Iraq Government vs SCIRI](http://www.war-memorial.net/Iraq-Government-vs-SCIRI-3.232), 1,165 people killed
+- 1982-1996 [Iraq vs Kurdistan (KDP/PUK)](http://www.war-memorial.net/Iraq-vs-Kurdistan-(KDP/PUK)-3.198), 20,849 people killed
+- 1982-2015 [Somalia Civil War](http://www.war-memorial.net/Somalia-Civil-War-3.255), 51,701 people killed
+- ~1982 [Falklands War](http://www.war-memorial.net/Falklands-War-3.173), 964 people killed
+- 1983-1993 [Indian Govt vs Sikh insurgents](http://www.war-memorial.net/Indian-Govt-vs-Sikh-insurgents-3.229), 14,551 people killed
+- 1983-2015 [Sudan Government vs Militias](http://www.war-memorial.net/Sudan-Government-vs-Militias-3.222), 97,221 people killed
+- 1984-2009 [Sri Lankan Govt vs Tamil Militants (LTTE)](http://www.war-memorial.net/Sri-Lankan-Govt-vs-Tamil-Militants-(LTTE)-3.224), 73,818 people killed
+- 1984-2015 [Turkey Gov vs Kurdistan Guerilla (PPK)](http://www.war-memorial.net/Turkey-Gov-vs-Kurdistan-Guerilla-(PPK)---3.227), 28,651 people killed
+- 1984- [Indian-Pakistani Dispute and Intrastate Insurgency in Kashmir](http://www.war-memorial.net/Indian-Pakistani-Dispute-and-Intrastate-Insurgency-in-Kashmir-3.228),  people killed
+- ~1986 [South Yemen Coup](http://www.war-memorial.net/South-Yemen-Coup-3.179), 10,000 people killed
+- ~1987 [Chadian-Lybian War (Aouzou Strip)](http://www.war-memorial.net/Chadian-Lybian-War-(Aouzou-Strip)-3.326), 8,500 people killed
+- 1989-2003 [Liberia Civil War](http://www.war-memorial.net/Liberia-Civil-War-3.209), 23,249 people killed
+- ~1989 [Panama Coup and US Invasion](http://www.war-memorial.net/Panama-Coup-and-US-Invasion-3.316), 920 people killed
+- ~1989 [Romanian Revolution](http://www.war-memorial.net/Romanian-Revolution-3.327), 909 people killed
+- 1990-1991 [First Gulf War](http://www.war-memorial.net/First-Gulf-War-3.192), 23,946 people killed
+- 1990-1994 [Rwanda Civil War (Hutus vs Tutsis)](http://www.war-memorial.net/Rwanda-Civil-War-(Hutus-vs-Tutsis)----3.202), 507,754 people killed
+- 1990-2005 [Indonesia Gvt vs Aceh Liberation movement](http://www.war-memorial.net/Indonesia-Gvt-vs-Aceh-Liberation-movement--3.230), 3,184 people killed
+- 1990-2006 [Southern Lebanon War](http://www.war-memorial.net/Southern-Lebanon-War-3.252), 1,712 people killed
+- 1990-2011 [Senegal Civil War](http://www.war-memorial.net/Senegal-Civil-War-3.213), 1,657 people killed
+- 1990-2014 [Nagorno-Karabakh War](http://www.war-memorial.net/Nagorno-Karabakh-War--3.250), 5,294 people killed
+- 1990-2014 [Northern Mali Conflict](http://www.war-memorial.net/Northern-Mali-Conflict-3.260), 2,784 people killed
+- 1991-2001 [Sierra Leone Civil War](http://www.war-memorial.net/Sierra-Leone-Civil-War-3.234), 18,119 people killed
+- 1991-2008 [Burundi Civil War](http://www.war-memorial.net/Burundi-Civil-War-3.239), 15,651 people killed
+- 1991-2014 [Algeria Govt vs Islamic rebels, GIA, AIS, AQIM](http://www.war-memorial.net/Algeria-Govt-vs-Islamic-rebels,-GIA,-AIS,-AQIM--3.231), 20,658 people killed
+- 1991-2014 [Indian Govt vs Maoist Guerillas](http://www.war-memorial.net/Indian-Govt-vs-Maoist-Guerillas-3.320), 7,198 people killed
+- ~1991 [Serbian Govt. vs Croatian irregulars](http://www.war-memorial.net/Serbian-Govt.-vs-Croatian-irregulars-3.313), 3,933 people killed
+- 1992-1993 [Georgian Civil War](http://www.war-memorial.net/Georgian-Civil-War-3.199), 2,752 people killed
+- 1992-1995 [Bosnian Govt vs Serbian and Croatian Insurgents](http://www.war-memorial.net/Bosnian-Govt-vs-Serbian-and-Croatian-Insurgents--3.206),  people killed
+- 1992-1995 [Croatia vs Serbian Irregulars, Rep. Krajina](http://www.war-memorial.net/Croatia-vs-Serbian-Irregulars,-Rep.-Krajina-3.196), 1,442 people killed
+- 1992-2011 [Tajikistan Govt vs Opposition](http://www.war-memorial.net/Tajikistan-Govt-vs-Opposition-3.211), 9,145 people killed
+- 1993-1996 [Hunde and allies vs Hutu, Banyarwanda](http://www.war-memorial.net/Hunde-and-allies-vs-Hutu,-Banyarwanda-3.330), 3,938 people killed
+- 1993-2002 [Congo Brazzaville Civil War](http://www.war-memorial.net/Congo-Brazzaville-Civil-War-3.214), 15,541 people killed
+- ~1994 [North Yemen vs Secessionists](http://www.war-memorial.net/North-Yemen-vs-Secessionists--3.204), 1,489 people killed
+- 1994- [Russia vs Chechnyan Secessionists and the Caucasus Emirate 1994](http://www.war-memorial.net/Russia-vs-Chechnyan-Secessionists-and-the-Caucasus-Emirate-3.235),  people killed
+- 1996-2003 [First and Second Congo Wars](http://www.war-memorial.net/First-and-Second-Congo-Wars-3.238), 80,018 people killed
+- 1996-2006 [Nepal Civil War](http://www.war-memorial.net/Nepal-Civil-War-3.251), 12,282 people killed
+- 1998-1999 [Yugoslavia vs NATO Forces and UCK Guerilla](http://www.war-memorial.net/Yugoslavia-vs-NATO-Forces-and-UCK-Guerilla-3.216), 3,613 people killed
+- 1999-2004 [Ituri Conflict](http://www.war-memorial.net/Ituri-Conflict-3.321), 12,494 people killed
+- ~2000 [Eritrea vs Ethiopia](http://www.war-memorial.net/Eritrea-vs-Ethiopia-3.240), 98,192 people killed
+- 2001-2013 [al-Qaida vs USA and allies](http://www.war-memorial.net/al-Qaida-vs-USA-and-allies-3.245), 7,649 people killed
+- 2001-2015 [Afghanistan war](http://www.war-memorial.net/Afghanistan-war-3.253), 72,593 people killed
+- ~2003 [Iraq vs US led coalition](http://www.war-memorial.net/Iraq-vs-US-led-coalition-3.244), 7,927 people killed
+- 2004-2015 [Iraqi Insurgency](http://www.war-memorial.net/Iraqi-Insurgency-3.258), 46,834 people killed
+- 2006-2013 [Kivu Conflict](http://www.war-memorial.net/Kivu-Conflict-3.262), 10,449 people killed
+- 2006-2013 [Lou Nuer vs Murle (Jonglei conflict)](http://www.war-memorial.net/Lou-Nuer-vs-Murle-(Jonglei-conflict)-3.331), 3,362 people killed
+- 2006-2015 [Mexican Drug War](http://www.war-memorial.net/Mexican-Drug-War-3.256), 11,465 people killed
+- 2007-2015 [Waziristan conflict](http://www.war-memorial.net/Waziristan-conflict-3.254), 28,542 people killed
+- 2009-2015 [Nigerian Govt vs Boko Haram](http://www.war-memorial.net/Nigerian-Govt-vs-Boko-Haram-3.312), 13,601 people killed
+- 2009-2015 [Yemeni Civil War](http://www.war-memorial.net/Yemeni-Civil-War-3.263), 5,981 people killed
+- 2011-2015 [Libyan Civil War](http://www.war-memorial.net/Libyan-Civil-War-3.259), 3,617 people killed
+- 2011-2015 [South Sudan Civil War](http://www.war-memorial.net/South-Sudan-Civil-War-3.315), 4,416 people killed
+- 2011-2015 [Syrian civil war](http://www.war-memorial.net/Syrian-civil-war-3.257), 129,546 people killed
+- 2012-2013 [Sectarian Conflict in the Central African Republic](http://www.war-memorial.net/Sectarian-Conflict-in-the-Central-African-Republic-3.319),  people killed
+- 2014-2015 [Eastern Ukraine War](http://www.war-memorial.net/Eastern-Ukraine-War-3.328), 4,398 people killed
